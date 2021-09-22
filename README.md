@@ -1,2 +1,0 @@
-# curriculoanderson
-curriculoanderson
